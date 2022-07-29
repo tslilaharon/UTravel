@@ -7,4 +7,4 @@
 
 
 
-![Screenshot 2022-05-11 095251](https://user-images.githubusercontent.com/59604062/169810865-d881be39-0ead-4400-81bb-41257a3944ae.png)
+![Frame 1 (1)](https://user-images.githubusercontent.com/59604062/181691178-fad71705-ca06-48c6-b1b4-b0c6ddaf6889.jpg)
